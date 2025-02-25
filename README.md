@@ -8,7 +8,7 @@ metal slug brings classic run-to-gun action to esports
 metal slug brings classic run-to-gun action to esports
   </i><br><br>
   <u>
-  
-metal slug brings classic run-to-gun action to esports
+  metal slug brings classic run-to-gun action to esports
   </u>
+  <img>C:\Users\gpth\Pictures\BIJAPUR-FEATURE-compressed.jpg</img>
 </html>
